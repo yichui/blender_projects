@@ -1,1 +1,1 @@
-学习记录地址： https://www.yuque.com/yichuixigua/oo86u0/he370h/edit
+学习笔记记录地址： https://www.yuque.com/yichuixigua/oo86u0/he370h/edit
